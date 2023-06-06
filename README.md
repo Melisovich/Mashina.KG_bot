@@ -1,1 +1,2 @@
 # Mashina.KG_bot
+6230693672:AAEV3dBdzKXjKHSgUPggl2IGqwucRb_Jk-k
